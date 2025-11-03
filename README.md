@@ -1,1 +1,1 @@
-Placas conmemorativas de Madrid
+Plantilla de Placas conmemorativas de Madrid
